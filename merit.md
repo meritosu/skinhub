@@ -6,17 +6,17 @@
 last updated <b>07/02/2023</b>
 </p>
 
-# [ฅ^•ﻌ•^ฅ Merit on osu! 《MERIT》](https://github.com/rudj-skinhub/woal/raw/tyfh/merit/%E0%B8%85%5E%E2%80%A2%EF%BB%8C%E2%80%A2%5E%E0%B8%85%20%20Merit%20on%20osu!%20%20%20%E3%80%8AMERIT%E3%80%8B.osk)
-[![](https://i.imgur.com/cEpgM8G.jpeg)](https://github.com/rudj-skinhub/woal/raw/tyfh/merit/%E0%B8%85%5E%E2%80%A2%EF%BB%8C%E2%80%A2%5E%E0%B8%85%20%20Merit%20on%20osu!%20%20%20%E3%80%8AMERIT%E3%80%8B.osk)
+# [ฅ^•ﻌ•^ฅ Merit on osu! 《MERIT》](https://drive.google.com/uc?export=download&id=1SFpcVPG2RVRQimhmKq-fBApCdAN3KuPe)
+[![](https://cdn.discordapp.com/attachments/1032724508613804104/1097737356913688707/merit_preview.jpg)](https://drive.google.com/uc?export=download&id=1SFpcVPG2RVRQimhmKq-fBApCdAN3KuPe)
 
-# [ฅ^•ﻌ•^ฅ Merit on osu! 《RYUK》](https://github.com/rudj-skinhub/woal/raw/tyfh/merit/%E0%B8%85%5E%E2%80%A2%EF%BB%8C%E2%80%A2%5E%E0%B8%85%20%20Merit%20on%20osu!%20%20%20%E3%80%8ARYUK%E3%80%8B.osk)
-[![](https://i.imgur.com/IxzMNgJ.jpeg)](https://github.com/rudj-skinhub/woal/raw/tyfh/merit/%E0%B8%85%5E%E2%80%A2%EF%BB%8C%E2%80%A2%5E%E0%B8%85%20%20Merit%20on%20osu!%20%20%20%E3%80%8ARYUK%E3%80%8B.osk)
+# [ฅ^•ﻌ•^ฅ Merit on osu! 《RYUK》](https://drive.google.com/uc?export=download&id=1GKDD0ChQzZMMISIpJkGRA841tVm1yw6V)
+[![](https://i.imgur.com/IxzMNgJ.jpeg)](https://drive.google.com/uc?export=download&id=1GKDD0ChQzZMMISIpJkGRA841tVm1yw6V)
 
-# [ฅ^•ﻌ•^ฅ Merit on osu! 《SHIGE》](https://github.com/rudj-skinhub/woal/raw/tyfh/merit/%E0%B8%85%5E%E2%80%A2%EF%BB%8C%E2%80%A2%5E%E0%B8%85%20%20Merit%20on%20osu!%20%20%20%E3%80%8ASHIGE%E3%80%8B.osk)
-[![](https://i.imgur.com/KqdyGQu.jpeg)](https://github.com/rudj-skinhub/woal/raw/tyfh/merit/%E0%B8%85%5E%E2%80%A2%EF%BB%8C%E2%80%A2%5E%E0%B8%85%20%20Merit%20on%20osu!%20%20%20%E3%80%8ASHIGE%E3%80%8B.osk)
+# [ฅ^•ﻌ•^ฅ Merit on osu! 《SEOUL》](https://drive.google.com/uc?export=download&id=1xdJfCIBCIvm0pZrqZyEHG6lQNyN7DFv9)
+[![](https://cdn.discordapp.com/attachments/1032724508613804104/1097737357177913384/shige_preview.jpg)](https://drive.google.com/uc?export=download&id=1xdJfCIBCIvm0pZrqZyEHG6lQNyN7DFv9)
 
-# [ฅ^•ﻌ•^ฅ Merit on osu! 《ROHULK》](https://github.com/rudj-skinhub/woal/raw/tyfh/merit/%E0%B8%85%5E%E2%80%A2%EF%BB%8C%E2%80%A2%5E%E0%B8%85%20%20Merit%20on%20osu!%20%20%20%E3%80%8AROHULK%E3%80%8B.osk)
-[![](https://i.imgur.com/OfGGXcx.jpeg)](https://github.com/rudj-skinhub/woal/raw/tyfh/merit/%E0%B8%85%5E%E2%80%A2%EF%BB%8C%E2%80%A2%5E%E0%B8%85%20%20Merit%20on%20osu!%20%20%20%E3%80%8AROHULK%E3%80%8B.osk)
+# [ฅ^•ﻌ•^ฅ Merit on osu! 《ARICIN》](https://drive.google.com/uc?export=download&id=1VgY0vpCijaozPGSCm4DtwgjtOOXUdZwO)
+[![](https://cdn.discordapp.com/attachments/1032724508613804104/1097736128725012590/aricin_preview.jpg)](https://drive.google.com/uc?export=download&id=1VgY0vpCijaozPGSCm4DtwgjtOOXUdZwO)
 
 #
 <p align="center">
