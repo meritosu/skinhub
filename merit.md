@@ -6,9 +6,6 @@
 last updated <b>07/02/2023</b>
 </p>
 
-       width="151" 
-       height="70"/></a>
-
 # [ฅ^•ﻌ•^ฅ Merit on osu! 《MERIT》](https://github.com/rudj-skinhub/woal/raw/tyfh/merit/%E0%B8%85%5E%E2%80%A2%EF%BB%8C%E2%80%A2%5E%E0%B8%85%20%20Merit%20on%20osu!%20%20%20%E3%80%8AMERIT%E3%80%8B.osk)
 [![](https://i.imgur.com/cEpgM8G.jpeg)](https://github.com/rudj-skinhub/woal/raw/tyfh/merit/%E0%B8%85%5E%E2%80%A2%EF%BB%8C%E2%80%A2%5E%E0%B8%85%20%20Merit%20on%20osu!%20%20%20%E3%80%8AMERIT%E3%80%8B.osk)
 
