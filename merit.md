@@ -1,9 +1,7 @@
 # Merit's skinhub
 <p align="center">
 <a href="https://osu.ppy.sh/users/13730417">
-  <img src="https://a.ppy.sh/13730417"  
-       width="150"
-       height="150"></a>
+  <img src="https://a.ppy.sh/13730417">  
 <br>
 last updated <b>07/02/2023</b>
 </p>
